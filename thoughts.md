@@ -5,3 +5,7 @@ Strategies To Try
 
 Breaking code and seeing what happens
 Meeting with a Cohort to Have Navigator-Driver Practice
+
+Shortouts
+
+I would like to shoutout Brad B. 
