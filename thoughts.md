@@ -12,3 +12,6 @@ I would like to shoutout Brad B.
 
 I got some assistance today, and I feel so much better.
 It's good to know you can reach out to folks for help.
+
+Shouting out Brad B for practicing with me.
+We do our best thinking when are not looking at problem. 
